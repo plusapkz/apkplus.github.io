@@ -31,8 +31,8 @@ Size: 34,8 MB<br />
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 </center>
+<a rel="dofollow" href="https://gbwhatsapp2018.com/gb-whatsapp-download" target="_blank">.APK Download (35MB)</a><br>
 <a rel="nofollow" href="http://plusapkz.com/WhatsappPlusV610.zip" target="_blank">.ZIP Download (21MB)</a><br>
-<a rel="nofollow" href="https://down.uploadfiles.io/get/llc0h" target="_blank">.APK Download (34MB)</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
