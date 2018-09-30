@@ -1,7 +1,7 @@
 ---
 layout: page
 title: WhatsApp Plus Apk Download for Android (2018 Latest Version)
-permalink: /whatsapp-plus-download
+permalink: /yowhatsapp-download
 ---
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
