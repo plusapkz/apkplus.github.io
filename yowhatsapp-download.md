@@ -16,7 +16,7 @@ Whatsapp is an app that everyone uses very fondly. But with the new YOWhatsapp y
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 <center>
-<a href="https://plusapkz.com/"><img src="https://plusapkz.com/yowhatsapp.png" alt="yowhatsapp" title="yo whatsapp" /></a><br />
+<a href="https://plusapkz.com/"><img src="https://plusapkz.com/yowhatsapp.png" width="90" height="90" alt="yowhatsapp" title="yo whatsapp" /></a><br />
 Name: Yo WhatsApp APK Download<br />
 Version: v7.60 (Latest)<br />
 Size: 42 MB<br />
