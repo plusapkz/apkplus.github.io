@@ -18,8 +18,8 @@ Whatsapp is an app that everyone uses very fondly. But with the new YOWhatsapp y
 <center>
 <a href="https://plusapkz.com/"><img src="https://plusapkz.com/yowhatsapp.png" width="90" height="90" alt="yowhatsapp" title="yo whatsapp" /></a><br />
 Name: Yo WhatsApp APK Download<br />
-Version: v7.60 (Latest)<br />
-Size: 42 MB<br />
+Version: v7.70 (Latest 2019)<br />
+Size: 44 MB<br />
      <center>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- Baglanti20090 -->
@@ -31,7 +31,7 @@ Size: 42 MB<br />
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 </center>
-<a rel="nofollow" href="http://www.mediafire.com/file/4el77mlfr5fbqr1/YoWAV7.60_com.plusapkz.com.yowa_Yousef_Al_Basha.apk/" target="_blank">.APK Download (42MB)</a><br>
+<a rel="nofollow" href="http://www.mediafire.com/file/7xwtda9t13d3612/YoWhatsapp.club_v7.70_com.yowa_Yousef_Al_Basha.apk" target="_blank">.APK Download (44MB)</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
@@ -44,7 +44,7 @@ Size: 42 MB<br />
 </center>
 
 <h2>YoWhatsapp Features</h2>
-🔹 Thanks to the YouWhatsapp feature, you will now use only one tick. Remember, formerly
+🔹 Thanks to the YoWhatsapp feature, you will now use only one tick. Remember, formerly
 Whatsapp was working with a single tick, but new tick applications were started. You can use
 YOWhatsapp if you are not satisfied with them. The messages you receive from this feature
 will appear as the only single teaser in the user. The person who sent you a message won&#39;t
