@@ -20,7 +20,17 @@ Name: WhatsApp Plus APK Download<br />
 Version: v6.60 (Latest)<br />
 Update: 17.10.2018<br />
 Size: 32 MB<br />
-     <center>
+     <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
+<!-- 336 -->
+<ins class="adsbygoogle"
+     style="display:inline-block;width:336px;height:280px"
+     data-ad-client="ca-pub-7942429830883405"
+     data-ad-slot="9585734309"></ins>
+<script>
+(adsbygoogle = window.adsbygoogle || []).push({});
+</script>
+<a rel="dofollow" href="https://plusmodapks.xyz/gb-whatsapp-download" target="_blank">.APK Download (32MB)</a><br>
+<center>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- Baglanti20090 -->
 <ins class="adsbygoogle"
@@ -31,16 +41,6 @@ Size: 32 MB<br />
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 </center>
-<a rel="dofollow" href="https://plusmodapks.xyz/gb-whatsapp-download" target="_blank">.APK Download (32MB)</a><br>
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
-<!-- 336 -->
-<ins class="adsbygoogle"
-     style="display:inline-block;width:336px;height:280px"
-     data-ad-client="ca-pub-7942429830883405"
-     data-ad-slot="9585734309"></ins>
-<script>
-(adsbygoogle = window.adsbygoogle || []).push({});
-</script>
 </center>
 
 <h2>Should You Download WhatsApp Plus and How Can You Do That?</h2>
