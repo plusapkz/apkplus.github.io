@@ -31,7 +31,7 @@ Size: 44 MB<br />
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 </center>
-<a rel="nofollow" href="http://www.mediafire.com/file/7xwtda9t13d3612/YoWhatsapp.club_v7.70_com.yowa_Yousef_Al_Basha.apk" target="_blank">.APK Download (44MB)</a><br>
+<a href="https://plusmodapks.com/yowhatsapp/" target="_blank">.APK Download (44MB)</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
